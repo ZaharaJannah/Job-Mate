@@ -39,10 +39,6 @@ Developed by
 **[Ruach](https://github.com/rsakadewa7)**, and
 **[Zahara](https://github.com/ZaharaJannah)**
 
-📩 Email: `radityaruan@gmail.com`  
-
-🔗 LinkedIn: [Yohanes Raditya Wirawan Aruan](https://www.linkedin.com/in/yohanes-raditya-wirawan-aruan/) 
----
 
 🚀 **Stay Organized, Stay Hired with JobMate!**
 
